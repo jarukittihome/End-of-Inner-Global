@@ -1,4 +1,4 @@
-# End-of-Inner-Global
+# End-of-Universe
 The end of the Global starts unto the mere inner Spirit.
 # สุดขอบจักรวาล... ซ่อนอยู่ในกายยาววา
 > มัชฌิมาปฏิปทา • THE MIDDLE WAY | จากแสงดาวเบื้องบน สู่ความตื่นรู้เบื้องใน
